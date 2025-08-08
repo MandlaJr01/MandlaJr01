@@ -26,6 +26,7 @@
 - 🏀 I casually ball on the court.
 - 🛹 I skate every now and then.
 - ⚽ I also love playing soccer.
+- 📚 Reading helps me recharge and learn new perspectives.
 
 ---
 
