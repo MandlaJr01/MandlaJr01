@@ -30,7 +30,7 @@
 ---
 
 ### 📫 Let’s Connect!
-- [LinkedIn]([https://www.linkedin.com/in/your-link](https://www.linkedin.com/in/mandlajr-nhlapo/))   
+- (https://www.linkedin.com/in/mandlajr-nhlapo/)   
 
 
 ---
